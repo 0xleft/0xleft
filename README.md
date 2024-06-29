@@ -1,1 +1,1 @@
-If I make test pr it is most likely for security research. Dont worry 🙂
+If I make test pr it is most likely for security research.
