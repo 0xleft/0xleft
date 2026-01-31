@@ -1,1 +1,1 @@
-Hi im new here :)
+To the guy who invented zero... thanks for nothing.
